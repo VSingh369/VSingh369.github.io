@@ -4,8 +4,8 @@
 
 📍 Prayagraj, Uttar Pradesh, India  
 📧 varshasingh.aiml@gmail.com  
-🌐 https://yourwebsite.com  
-💻 https://github.com/yourusername  
+🌐 https://vsingh369.github.io/
+💻 https://github.com/varsha309
 🔗 https://www.linkedin.com/in/varsha-singh-b1b882b1/  
 📖 Google Scholar: https://scholar.google.com/citations?user=ZsEut5QAAAAJ&hl=en
 
